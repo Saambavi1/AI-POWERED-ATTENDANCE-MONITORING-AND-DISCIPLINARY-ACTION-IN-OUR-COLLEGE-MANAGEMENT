@@ -1,0 +1,2 @@
+# AI-POWERED-ATTENDANCE-MONITORING-AND-DISCIPLINARY-ACTION-IN-OUR-COLLEGE-MANAGEMENT
+Monitoring students engagement through application using All 
